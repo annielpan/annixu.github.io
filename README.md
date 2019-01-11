@@ -1,2 +1,2 @@
 # annixu.github.io
-this is new
+I'm totally new to this!
